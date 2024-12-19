@@ -1,4 +1,7 @@
 **Demo :**
+![Screenshot 2024-12-19 203940](https://github.com/user-attachments/assets/f364c36e-83c3-4eef-a61b-4eddfb86689d)
+
+**Video :**
 https://github.com/user-attachments/assets/7c2ff2ab-bf04-472f-8109-c923de2624e6
 
 
